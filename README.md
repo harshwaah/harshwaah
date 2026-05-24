@@ -2,7 +2,7 @@
 
 
 ## 📌 About Me
-- I love building human centric centric systems 🖥
+- I love building human centric systems 🖥
 - Experiences that stay 🌟
 - Feelings that resonate ♥
 
